@@ -3,7 +3,7 @@ Do you want to fire spring thunder shell out of your dart zone blasters? While s
 
 Print all the parts,
 Glue the hinge to the underside of both of the shellblock and the scar part.
-Use a ruberband to hold the shells together.
+Use a ruberband to hold the parts together so that it stays closed.
 
 IMPORTANT,
 sand the long part you will stick in your DZ blaster carefully otherwise it might be stuck! (this is because i have noticed a diffence in the DZ barrel points)
